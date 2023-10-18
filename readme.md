@@ -1,3 +1,4 @@
+# Barbie
 Barbie is a popular fashion doll that has become an iconic toy since its introduction in 1959. Here's some information about Barbie:
 
 1. **Origin:** Barbie was created by Ruth Handler, co-founder of Mattel Inc., after she noticed her daughter Barbara playing with paper dolls and imagining them in grown-up roles. This inspired the idea for an adult-like fashion doll.
